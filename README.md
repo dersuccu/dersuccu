@@ -2,7 +2,7 @@
 
                                        ㅤ┊ ˚➶ ｡˚ ☁️ white mustang...
             ㅤ     ㅤ             ㅤ                                                  ㅤ...your white mustang 𓍯𓂃            
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ             ㅤㅤ <img src="" center>     ㅤ        
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ             ㅤㅤ <img src="https://github.com/dersuccu/dersuccu/blob/main/e3edf2b46d4d65e25dc81865b9ad332e.gif?raw=true" center>     ㅤ        
 
 
 
