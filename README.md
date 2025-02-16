@@ -1,9 +1,10 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ                ㅤㅤㅤㅤㅤ <img src="https://github.com/user-attachments/assets/ea604d1a-3cbb-43ab-b906-5efdb3218f31"  width="90" height="82" center>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ             ㅤㅤ <img src="https://github.com/dersuccu/dersuccu/blob/main/f8e6af6b14fec371f6e4e93a4ffbe0df.gif?raw=true" center>
 
-<!--
-**dersuccu/dersuccu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+                                       ㅤ┊ ˚➶ ｡˚ ☁️ white mustang...
+            ㅤ     ㅤ             ㅤ                                                  ㅤ...your white mustang 𓍯𓂃            
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ             ㅤㅤ <img src="" center>     ㅤ        
 
-Here are some ideas to get you started:
+
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
