@@ -7,4 +7,4 @@
 
 ㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤ╰┈ ⋆｡˚ ❀ *· ࿐ ࿔ ˚:⋆ ✧･ﾟ ⊹ ˖ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ         ㅤ          ㅤㅤㅤ        ㅤ          ㅤㅤㅤㅤㅤ        ㅤ          ㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ         ㅤ          ㅤㅤㅤ       ㅤ        ㅤ     ㅤ <img src="https://github.com/dersuccu/dersuccu/blob/main/14d4ed6f59f189ad7b327828ed1ee15b.gif?raw=true" center>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/dersuccu/dersuccu/blob/main/14d4ed6f59f189ad7b327828ed1ee15b.gif?raw=true" center>
