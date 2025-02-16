@@ -5,6 +5,6 @@
 
 ㅤㅤㅤㅤㅤ <img src="https://github.com/dersuccu/dersuccu/blob/main/e3edf2b46d4d65e25dc81865b9ad332e.gif?raw=true" height="400" center>     ㅤ        
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ         ㅤ          ㅤㅤㅤㅤㅤ <img src="https://github.com/dersuccu/dersuccu/blob/main/f8e6af6b14fec371f6e4e93a4ffbe0df.gif?raw=true" center>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ         ㅤ          ㅤㅤㅤㅤㅤ <img src="https://github.com/dersuccu/dersuccu/blob/main/14d4ed6f59f189ad7b327828ed1ee15b.gif?raw=true" center>
 
 
