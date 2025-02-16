@@ -1,4 +1,4 @@
-## Hi there 👋
+<img src="https://github.com/dersuccu/dersuccu/blob/main/f8e6af6b14fec371f6e4e93a4ffbe0df.gif?raw=true" center>
 
 <!--
 **dersuccu/dersuccu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
