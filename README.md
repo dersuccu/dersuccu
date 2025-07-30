@@ -3,7 +3,7 @@
  ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ┊ ˚➶ ｡˚ ☁️ 🇼‌🇭‌🇮‌🇹‌🇪‌ 🇲‌🇺‌🇸‌🇹‌🇦‌🇳‌🇬‌... ㅤ ㅤ ㅤ  
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ                       ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ                         ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ   ...🇾‌🇴‌🇺‌🇷‌ 🇼‌🇭‌🇮‌🇹‌🇪‌ 🇲‌🇺‌🇸‌🇹‌🇦‌🇳‌🇬‌ 𓍯┊ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ 
 
-ㅤㅤㅤㅤㅤ <img src="https://github.com/dersuccu/dersuccu/blob/a36fd2d974e1dd7d975180883756d3fda259a79b/affb07f5bf4e70a8b8fdeb3c5fb2b1a7.gif" height="400" center>     ㅤ        
+ㅤㅤㅤㅤㅤㅤㅤ <img src="https://github.com/dersuccu/dersuccu/blob/a36fd2d974e1dd7d975180883756d3fda259a79b/affb07f5bf4e70a8b8fdeb3c5fb2b1a7.gif" height="400" center>     ㅤ        
 
 ㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤ  ㅤㅤ ㅤㅤ   ㅤ╰┈ ⋆｡˚ ❀ *· ࿐ ࿔ ˚:⋆ ✧･ﾟ ⊹ ˖ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ         ㅤ          ㅤㅤㅤ        ㅤ          ㅤㅤㅤㅤㅤ        ㅤ          ㅤㅤㅤㅤㅤㅤㅤ
 
