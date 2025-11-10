@@ -1,7 +1,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ         ㅤ          ㅤㅤㅤㅤㅤ <img src="https://github.com/dersuccu/dersuccu/blob/main/7b4ee972271b4e11ffaefa53fb313c5b.gif?raw=true" width="90" height="82" center>
 
  ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ┊ ˚➶ ｡˚ ☁️ 𝙳𝚒𝚛𝚝𝚢 𝚋𝚎𝚍𝚜 𝚊𝚗𝚍 𝙼𝚘𝚝𝚎𝚕𝚜, 𝚌𝚊𝚜𝚝 𝚢𝚘𝚞𝚛 𝚜𝚙𝚎𝚕𝚕 𝚘𝚗 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚎𝚕𝚜𝚎                                                                                              
- ..𝙱𝚞𝚝 𝚢𝚘𝚞, 𝚋𝚞𝚝 𝚢𝚘𝚞
+ ..𝙱𝚞𝚝 𝚢𝚘𝚞, 𝚋𝚞𝚝 𝚢𝚘𝚞                                                                
               𝚈𝚘𝚞’𝚕𝚕 𝚋𝚎 𝚑𝚊𝚙𝚙𝚢 𝚘𝚟𝚎𝚛 𝚝𝚒𝚖𝚎        𝚃𝚑𝚊𝚗𝚔 𝚏𝚞𝚌𝚔 𝚏𝚘𝚛 𝚘𝚞𝚛 𝚍𝚎𝚌𝚕𝚒𝚗𝚎‌ 𓍯┊ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img src="https://github.com/dersuccu/dersuccu/blob/a36fd2d974e1dd7d975180883756d3fda259a79b/affb07f5bf4e70a8b8fdeb3c5fb2b1a7.gif" height="400" center>     ㅤ        
